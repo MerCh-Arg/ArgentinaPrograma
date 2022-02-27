@@ -1,0 +1,1 @@
+a ver si lo logro, seguro que si. lo que me falta de inteligencia me sobra de perseverancia.
